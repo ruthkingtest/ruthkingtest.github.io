@@ -1,1 +1,0 @@
-# ruthkingtest.github.io
